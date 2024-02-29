@@ -16,7 +16,7 @@
 
 💬 Ask me about **python, bash, or sql... or anything [here](https://github.com/Aingargiola/Learning_coding.git)**
 
-⚡ Fun fact **Game of Thrones Night's Watch cloaks are made from Ikea rugs**
+⚡ Fun fact **Lego mini-figures have the largest population on Earth!**
 
  </div>
  
